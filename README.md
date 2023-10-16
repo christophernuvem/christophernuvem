@@ -13,4 +13,11 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+- eu sou alto
+- eu amo treinar e lutar
+- eu sou muito bom em me comunicar
+- meu hobby é ficar com a minha mulher
+- eu adoro dormir e comer
+- sou desenhista
+- 
 
